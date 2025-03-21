@@ -1,1 +1,9 @@
-# Task2-recon-ng
+![image](https://github.com/user-attachments/assets/b0abdf73-e483-48b7-baf0-0fbd03990162)
+![image](https://github.com/user-attachments/assets/4729410b-4dc0-497b-a2bf-45ea888d54d3)
+![image](https://github.com/user-attachments/assets/943bbff9-05bd-4163-a712-53c1ec2e4c71)
+![image](https://github.com/user-attachments/assets/461b1fc5-2a3a-4fa9-8c4c-0395c1406d6c)
+![image](https://github.com/user-attachments/assets/63eeaa89-bbf2-4c75-8946-7c04b473e813)
+![image](https://github.com/user-attachments/assets/5823d317-ec42-4f1d-a391-d7f2fa425dab)
+![image](https://github.com/user-attachments/assets/c208e248-dcb7-4c7c-9219-5304df9c77a6)
+![image](https://github.com/user-attachments/assets/139bc083-2c37-4161-975f-e325d87dfaea)
+![image](https://github.com/user-attachments/assets/de439afc-1718-43ba-9033-6d014d04a23c)
